@@ -9,5 +9,10 @@
 
 <br>
 
-<p align="center">
-$${\textsf{\color{#CCCCCC}shu ⋆ mugm‎ ‎ ‎ any prns}}$$<br>
+<p align="center">  
+$${\textsf{\color{#CCCCCC}shu ⋆ mugm‎⠀ ⠀any prns}}$$<br>  
+ $${\textsf{\color{#CCCCCC}minor ⋆ filo/eng}}$$<br>
+
+ <br>
+
+ $$
