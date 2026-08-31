@@ -1,7 +1,13 @@
 
 <div align="center">
   
-<img width="500" height="300" alt="heyitsmeitsverity" src="https://cdn.phototourl.com/free/2026-08-31-4ecb6081-98f6-4d16-b3ff-f930f3713022.png" /> <br>
+<img width="500" height="75" alt="heyitsmeitsverity" src="https://cdn.phototourl.com/free/2026-08-31-706302ad-2567-4581-be22-ee263daaee81.png" /> <br>
+
+<br>
+
+<div align="center">
+
+<a href="
   
 <div align="center">
 
