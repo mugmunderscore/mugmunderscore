@@ -7,7 +7,9 @@
 
 <div align="center">
 
-<a href="
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pangolin&pause=1000&color=CCCCCC&center=true&vCenter=true&width=435&lines=It's+a+shame+what+envy+does+to+a+person." alt="Typing SVG" /></a><br>
+
+<br>
   
 <div align="center">
 
@@ -21,4 +23,4 @@ $${\textsf{\color{#CCCCCC}shu ⋆ mugm‎⠀ ⠀any prns}}$$<br>
 
  <br>
 
- $$
+ 
