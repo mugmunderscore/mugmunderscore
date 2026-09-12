@@ -23,6 +23,23 @@ $${\textsf{\color{#CCCCCC}shu ⋆ mugm‎⠀ ⠀any prns}}$$<br>
 
  <br>
 
+<p align="center">  
+ <a href="https://en.pronouns.page/@_mugmm"> pronouns page</a> $${\textsf{\color{#CCCCCC}⸝⸝}}$$ <a href="https://shuviayami.straw.page"> strawpage</a> <br>
+
+ <br>
+  
  <img width="500" height="300" alt="iknowaboutamillionthings" src="https://www.image2url.com/r2/default/gifs/1789182848343-97aa3418-9766-408f-8116-6f175ecd28b6.gif" /> <br>
+
+ <br>
+
+$${\textsf{\color{#CCCCCC}c+h enc}}$$<br>  
+ $${\textsf{\color{#CCCCCC}🌙‎ || int whenever u want to}}$$<br>
+ $${\textsf{\color{#CCCCCC}⛔️‎ || w2i recommended}}$$<br>
+
+ <br>
+ 
+ <div align="center">
+  
+<img width="500" height="75" alt="illdoeverything" src="https://cdn.phototourl.com/free/2026-08-31-706302ad-2567-4581-be22-ee263daaee81.png" /> <br>
 
  
