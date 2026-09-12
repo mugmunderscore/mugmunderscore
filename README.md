@@ -23,4 +23,6 @@ $${\textsf{\color{#CCCCCC}shu ⋆ mugm‎⠀ ⠀any prns}}$$<br>
 
  <br>
 
+ <img width="500" height="300" alt="iknowaboutamillionthings" src="https://www.image2url.com/r2/default/gifs/1789182848343-97aa3418-9766-408f-8116-6f175ecd28b6.gif" /> <br>
+
  
